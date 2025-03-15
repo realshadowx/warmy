@@ -1,5 +1,7 @@
 # Warmy.io Coupon & Discount Code 2025 | Get 45% Off 🔥
 
+Hello folks, Amir here.
+
 Warmy.io is an excellent tool that helps businesses enhance communication with their visitors through live chat, personalized messages, and powerful chatbots.
 
 If you’re looking for the best deals on Warmy.io services, you’ve come to the right place! In this article, we’ll share the top [Warmy.io coupon codes](https://www.warmy.io/pricing?fpr=shadow) available, how to use them, and how much you can save
